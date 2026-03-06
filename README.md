@@ -1,1 +1,1 @@
-wassup ng
+wladek to taki catboy
